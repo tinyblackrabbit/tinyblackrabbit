@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @tinyblackrabbit 
+- 👀 I’m interested in c# only
+- 🌱 I’m currently learning c#
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me
+- 😄 Pronouns: 
+- ⚡ Fun fact: deez nuts
